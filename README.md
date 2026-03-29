@@ -6,11 +6,11 @@
 ## PANSEXUAL, POLY, TRANSMASC, HYPERSEXUAL
 
 (a couple of subtle things abt us,, uh.. audhd, social anxiety, anorexic, we love being called by pet names,, (darling, dear) stuff like that, we do like being treated like a dog.. (mnot in a weird way please..))
-️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ️️ㅤㅤㅤㅤ️️ㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 ᛝ⸝⸝⸝⋮꒰FANDOMS! : CH, ROBLOX, PHIGTING, ROBLOX ARG, MINECRAFT ARG, FORSAKEN, SB, TRANSFORMERS, METAL CARDBOT, OBJECT SHOWS, ALAN BECKER (alot more!!)꒱⋮⸝⸝⸝ᛝ
 
-️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ️️ㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 ᛝ⸝⸝⸝⋮꒰uhhh--- #1 russia fiction kin!!!! (lowk best friends with the #1 and ONLY! usa fiction kin... @fiftystates ilu twin!)꒱⋮⸝⸝⸝ᛝ
 
