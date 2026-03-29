@@ -5,7 +5,7 @@
 
 ## PANSEXUAL, POLY, TRANSMASC, HYPERSEXUAL
 
-
+(a couple of subtle things abt us,, uh.. audhd, social anxiety, anorexic, we love being called by pet names,, (darling, dear) stuff like that, we do like being treated like a dog.. (mnot in a weird way please..))
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 ᛝ⸝⸝⸝⋮꒰FANDOMS! : CH, ROBLOX, PHIGTING, ROBLOX ARG, MINECRAFT ARG, FORSAKEN, SB, TRANSFORMERS, METAL CARDBOT, OBJECT SHOWS, ALAN BECKER (alot more!!)꒱⋮⸝⸝⸝ᛝ
