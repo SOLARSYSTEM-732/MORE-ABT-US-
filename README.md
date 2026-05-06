@@ -12,7 +12,7 @@
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ️️ㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-ᛝ⸝⸝⸝⋮꒰uhhh--- #1 russia fiction kin!!!! (lowk best friends with the #1 and ONLY! usa fiction kin... @fiftystates ilu twin!)꒱⋮⸝⸝⸝ᛝ
+ᛝ⸝⸝⸝⋮꒰uhhh--- #1 russia fiction kin!!!! (lowk best friends with the #1 and ONLY usa fiction kin... @fiftystates ilu twin!)꒱⋮⸝⸝⸝ᛝ
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
@@ -20,7 +20,7 @@
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-ᛝ⸝⸝⸝⋮꒰taken by two wonderful systems!꒱⋮⸝⸝⸝ᛝ
+ᛝ⸝⸝⸝⋮꒰taken by a wonderful system!꒱⋮⸝⸝⸝ᛝ
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
