@@ -28,7 +28,7 @@
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-ᛝ⸝⸝⸝⋮꒰uhh--- uhhh.. UHHH we like to draw!! we also have commissions opened! though we only take cashapp...꒱⋮⸝⸝⸝ᛝ
+ᛝ⸝⸝⸝⋮꒰uhh--- uhhh.. UHHH we like to draw!! we also have commissions opened! though we only take cashapp and robux...꒱⋮⸝⸝⸝ᛝ
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
