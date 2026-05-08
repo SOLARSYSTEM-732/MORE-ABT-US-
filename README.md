@@ -24,7 +24,7 @@
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-ᛝ⸝⸝⸝⋮꒰some of our alters DO date outside of gutz and juno if they dont feel attracted to them! just make sure your body age is 14-18 for us!! and make sure they ARENT a little. we dont let our littles date outside of our system.꒱⋮⸝⸝⸝ᛝ
+ᛝ⸝⸝⸝⋮꒰some of our alters DO date outside of juno if they dont feel attracted to them! just make sure your body age is 15-18 for us!! and make sure they ARENT a little. we dont let our littles date outside of our system.꒱⋮⸝⸝⸝ᛝ
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
