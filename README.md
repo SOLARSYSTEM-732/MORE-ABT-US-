@@ -3,7 +3,7 @@
 <img width="1000" height="257" alt="image-473e-gradientmap pro" src="https://github.com/user-attachments/assets/0fdb999f-3b04-40f3-a1c5-d11409a0a7c0" />
 
 
-## PANSEXUAL, POLY, TRANSMASC, HYPERSEXUAL
+## PANSEXUAL, POLY, TRANSMASC, HYPERSEXUAL, GRAYROMANTIC AS WELL!
 
 (a couple of subtle things abt us,, uh.. audhd, social anxiety, anorexic, we love being called by pet names,, (darling, dear) stuff like that, we do like being treated like a dog.. (mnot in a weird way please..))
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ️️ㅤㅤㅤㅤ️️
@@ -33,5 +33,7 @@
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 ᛝ⸝⸝⸝⋮꒰C+H IS HIGHLEY ENCOURAGED!! we love when people cuddle us on pt!꒱⋮⸝⸝⸝ᛝ
+
+-# discord is : data_bend
 
 <img width="1000" height="216" alt="image-3c0e-gradientmap pro" src="https://github.com/user-attachments/assets/12c68168-5c26-4d8e-b077-994bce096644" />
