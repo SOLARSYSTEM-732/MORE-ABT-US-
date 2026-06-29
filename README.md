@@ -20,7 +20,7 @@
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-ᛝ⸝⸝⸝⋮꒰taken by a wonderful system!꒱⋮⸝⸝⸝ᛝ
+ᛝ⸝⸝⸝⋮꒰taken by 2 wonderful people <3꒱⋮⸝⸝⸝ᛝ
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
@@ -35,5 +35,13 @@
 ᛝ⸝⸝⸝⋮꒰C+H IS HIGHLEY ENCOURAGED!! we love when people cuddle us on pt!꒱⋮⸝⸝⸝ᛝ
 
 -# discord is : data_bend
+
+what im listening 2 :3 
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313wlgkqcy6egqfx7ytlfzjfna64&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
 <img width="1000" height="216" alt="image-3c0e-gradientmap pro" src="https://github.com/user-attachments/assets/12c68168-5c26-4d8e-b077-994bce096644" />
