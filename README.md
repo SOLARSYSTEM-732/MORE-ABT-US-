@@ -20,11 +20,11 @@
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-ᛝ⸝⸝⸝⋮꒰taken by 2 wonderful people <3꒱⋮⸝⸝⸝ᛝ
+ᛝ⸝⸝⸝⋮꒰taken by my wonderful partner of 5 years <3꒱⋮⸝⸝⸝ᛝ
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-ᛝ⸝⸝⸝⋮꒰some of our alters DO date outside of juno if they dont feel attracted to them! just make sure your body age is 15-18 for us!! and make sure they ARENT a little. we dont let our littles date outside of our system.꒱⋮⸝⸝⸝ᛝ
+ᛝ⸝⸝⸝⋮꒰some of our alters DO date outside of our partner if they dont feel attracted to them! just make sure your body age is 15-18 for us!! and make sure they ARENT a little. we dont let our littles date outside of our system.꒱⋮⸝⸝⸝ᛝ
 
 ️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
@@ -34,7 +34,7 @@
 
 ᛝ⸝⸝⸝⋮꒰C+H IS HIGHLEY ENCOURAGED!! we love when people cuddle us on pt!꒱⋮⸝⸝⸝ᛝ
 
--# discord is : data_bend
+-# discord is : l4places_ang3l
 
 what im listening 2 :3 
 
